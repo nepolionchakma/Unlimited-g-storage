@@ -25,10 +25,10 @@ Abusing this free service will lead to more google restrictions.
 
 [Link 4](https://gd.zxd.workers.dev)
 
-[Link 5] (https://gd.404edu.workers.dev)
+[Link 5](https://gd.404edu.workers.dev)
 
 [Link 6](https://teamdrive.xcpx.workers.dev)
 
 [Link 7](https://gdrive.zppcw.cn)
 
-[Link 8] (https://teamdrive.mfoxx.workers.dev)
+[Link 8](https://teamdrive.mfoxx.workers.dev)
