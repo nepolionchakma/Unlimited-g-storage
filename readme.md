@@ -19,16 +19,8 @@ Abusing this free service will lead to more google restrictions.
 
 [Link 1](https://td.msgsuite.workers.dev/)
 
-[Link 2](https://td.fastio.me)
+[Link 2](https://gd.404edu.workers.dev)
 
-[Link 3](https://gd.404edu.workers.dev)
+[Link 3](https://gdrive.zppcw.cn)
 
-[Link 4](https://gd.zxd.workers.dev)
-
-[Link 5](https://gd.404edu.workers.dev)
-
-[Link 6](https://teamdrive.xcpx.workers.dev)
-
-[Link 7](https://gdrive.zppcw.cn)
-
-[Link 8](https://teamdrive.mfoxx.workers.dev)
+[Link 4](https://teamdrive.mfoxx.workers.dev)
